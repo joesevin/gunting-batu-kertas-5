@@ -1,0 +1,1 @@
+# gunting-batu-kertas-5
